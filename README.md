@@ -1,7 +1,7 @@
 # adbskanmsaoib1234.github.io
 อิคคิว 
-ยังเค 
 13610010
-Nathakorn
+ณฐกร วิมลวัตรเวที
+Nathakorn Wimonwatwethi
 สวัสดีคร้าบบบบบบบบบบบ
 ![image](120134267_439906866970256_874120245649400780_n.jpg)
